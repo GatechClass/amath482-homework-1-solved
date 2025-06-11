@@ -1,0 +1,1 @@
+# amath482-homework-1-solved
